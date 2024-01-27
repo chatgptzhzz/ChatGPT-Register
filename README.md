@@ -23,7 +23,7 @@ https://onlyfans.com/
 淘宝店铺的开卡费很贵，并且是一次性使用！！！
 <img src="images/142312.png" alt="1" width="750" height="auto" />
 我已经踩过坑了，买了 30 usd，实际汇率只需要 220 元左右，但是收了 280，最最关键的是这个卡只能用一次，是临时的！
-<img src="images/152529.png" alt="2" width="750" height="auto" />
+<img src="images/152529.png" alt="test" width="750" height="auto" />
 
 
 ### 2.2 推荐长期稳定的虚拟卡平台：
@@ -32,8 +32,8 @@ https://onlyfans.com/
 https://bewildcard.com/i/GPT9 ( 使用这个链接复制到浏览器打开，2分钟即可搞定开卡，还可享受88折优惠~)
 
 用这个链接还可以享受开卡88折优惠，开卡费总共100元左右，开的卡有效期达2年，后续每次消费只需要充值你需要的美元金额即可，直接银行卡就能支付入账，超级方便，冲多了还可以提现回来。
+<img src="images/152535.png" alt="wildcard" width="750" height="auto" />
 
-wildcard
 
 ## 三 开好卡后，如何使用
 首先往卡里充值订阅博主付费内容需要的金额即可（建议多充1-2美元，防止扣款失败）
