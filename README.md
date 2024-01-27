@@ -46,8 +46,9 @@ https://bewildcard.com/i/GPT9 ( 使用这个链接复制到浏览器打开，2�
 
 onlyfans绑定卡方式
 
-绑定支付信用卡后，就可以去订阅喜欢的博主啦，比如 hongkongdoll 之类的，，是不是很快捷：
+绑定支付信用卡后，就可以去订阅喜欢的博主啦，比如 hongkongdoll 之类的，是不是很快捷：
 
-onlyfans绑定卡
+<img src="images/152556.png" alt="onlyfans绑定卡" width="750" height="auto" />
+
 
 ## 四、END
