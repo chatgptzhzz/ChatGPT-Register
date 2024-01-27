@@ -43,7 +43,7 @@ https://bewildcard.com/i/GPT9 ( 使用这个链接复制到浏览器打开，2�
 <img src="images/152542.png" alt="虚拟卡" width="750" height="auto" />
 
 上面需要的每一项信息，都可以直接在虚拟卡网页上看到，直接复制过去即可：
-
+<img src="images/152547.png" alt="onlyfans绑定卡" width="750" height="auto" />
 onlyfans绑定卡方式
 
 绑定支付信用卡后，就可以去订阅喜欢的博主啦，比如 hongkongdoll 之类的，是不是很快捷：
