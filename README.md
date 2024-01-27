@@ -21,7 +21,7 @@ https://onlyfans.com/
 ## 二、支付
 ### 2.1 不建议大家去某宝店铺买
 淘宝店铺的开卡费很贵，并且是一次性使用！！！
-<img src="images/14212.png" alt="1" width="750" height="auto" />
+<img src="images/142312.png" alt="1" width="750" height="auto" />
 我已经踩过坑了，买了 30 usd，实际汇率只需要 220 元左右，但是收了 280，最最关键的是这个卡只能用一次，是临时的！
 <img src="images/152529.png" alt="2" width="750" height="auto" />
 
