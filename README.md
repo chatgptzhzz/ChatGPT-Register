@@ -17,7 +17,7 @@ https://onlyfans.com/
 然后进行邮箱验证，我们这里点击发送会收到一封onlyfans的验证邮件，将收到的链接在登录的浏览器里复制粘贴打开即可验证成功。
 
 邮箱验证onlyfans
-
+<img src="images/sample_log.png" alt="注册过程日志" width="750" height="auto" />
 ## 二、支付
 ### 2.1 不建议大家去某宝店铺买
 淘宝店铺的开卡费很贵，并且是一次性使用！！！
