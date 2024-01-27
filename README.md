@@ -26,7 +26,7 @@ https://onlyfans.com/
 
 我已经踩过坑了，买了 30 usd，实际汇率只需要 220 元左右，但是收了 280，最最关键的是这个卡只能用一次，是临时的！
 
-<img src="images/152529.png" alt="wildcard" width="750" height="auto" />
+<img src="images/152535.png" alt="wildcard" width="750" height="auto" />
 
 
 ### 2.2 推荐长期稳定的虚拟卡平台：
