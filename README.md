@@ -43,6 +43,7 @@ https://bewildcard.com/i/GPT9 ( 使用这个链接复制到浏览器打开，2�
 
 然后去onlyfans绑定虚拟卡，https://onlyfans.com/my/payments/add_card：
 
+![这是图片](https://www.jianguoyun.com/p/DVewWwIQj-mrDBjw4LQFIAA )
 <img src="images/152542.png" alt="虚拟卡" width="750" height="auto" />
 
 上面需要的每一项信息，都可以直接在虚拟卡网页上看到，直接复制过去即可：
